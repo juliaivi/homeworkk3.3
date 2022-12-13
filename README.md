@@ -18,3 +18,15 @@
 Глаза манула имеют жёлтый цвет, [зрачки](https://ru.wikipedia.org/wiki/%D0%97%D1%80%D0%B0%D1%87%D0%BE%D0%BA) при ярком свете остаются круглыми, в отличие от таковых у [кошек](https://ru.wikipedia.org/wiki/%D0%9A%D0%BE%D1%88%D0%BA%D0%B8_(%D1%80%D0%BE%D0%B4)), которые становятся щелевидными. Среди кошачьих такую же особенность имеют представители родов [пумы](https://ru.wikipedia.org/wiki/%D0%9F%D1%83%D0%BC%D1%8B), [пантеры](https://ru.wikipedia.org/wiki/%D0%9F%D0%B0%D0%BD%D1%82%D0%B5%D1%80%D1%8B) и [гепарды](https://ru.wikipedia.org/wiki/%D0%93%D0%B5%D0%BF%D0%B0%D1%80%D0%B4%D1%8B). В отношении манула неизвестно, почему этот вид имеет круглые зрачки.
 
 ![манул](https://upload.wikimedia.org/wikipedia/commons/f/f4/Chat_de_Pallas_-_M%C3%A9nagerie_du_Jardin_des_Plantes_%28cropped%29.JPG)
+
+## Распространение и численность.
+
+Манул распространён на территории [Азии](https://ru.wikipedia.org/wiki/%D0%90%D0%B7%D0%B8%D1%8F). Западная граница его ареала — Западный [Иран](https://ru.wikipedia.org/wiki/%D0%98%D1%80%D0%B0%D0%BD). На территории Ирана вид встречается в основном в горах [Загрос](https://ru.wikipedia.org/wiki/%D0%97%D0%B0%D0%B3%D1%80%D0%BE%D1%81) и [Эльбурс](https://ru.wikipedia.org/wiki/%D0%AD%D0%BB%D1%8C%D0%B1%D1%83%D1%80%D1%81). Также сообщается о наблюдениях манула в [Армении](https://ru.wikipedia.org/wiki/%D0%90%D1%80%D0%BC%D0%B5%D0%BD%D0%B8%D1%8F), а в прошлом он также обитал на самой северо-восточной окраине [Турции](https://ru.wikipedia.org/wiki/%D0%A2%D1%83%D1%80%D1%86%D0%B8%D1%8F), в [Азербайджане](https://ru.wikipedia.org/wiki/%D0%90%D0%B7%D0%B5%D1%80%D0%B1%D0%B0%D0%B9%D0%B4%D0%B6%D0%B0%D0%BD) и, возможно, в Северном [Ираке](https://ru.wikipedia.org/wiki/%D0%98%D1%80%D0%B0%D0%BA). В [Средней Азии](https://ru.wikipedia.org/wiki/%D0%A1%D1%80%D0%B5%D0%B4%D0%BD%D1%8F%D1%8F_%D0%90%D0%B7%D0%B8%D1%8F) манул встречается в Центральном и Восточном [Казахстане](https://ru.wikipedia.org/wiki/%D0%9A%D0%B0%D0%B7%D0%B0%D1%85%D1%81%D1%82%D0%B0%D0%BD), а также в некоторых регионах [Киргизии][(](https://ru.wikipedia.org/wiki/%D0%9A%D0%B8%D1%80%D0%B3%D0%B8%D0%B7%D0%B8%D1%8F)) и редко — в [Туркмении](https://ru.wikipedia.org/wiki/%D0%A2%D1%83%D1%80%D0%BA%D0%BC%D0%B5%D0%BD%D0%B8%D1%8F), в [Копетдаге](https://ru.wikipedia.org/wiki/%D0%9A%D0%BE%D0%BF%D0%B5%D1%82%D0%B4%D0%B0%D0%B3). 
+
+## Биология и экология.
+
+#### Среда обитания
+
+Манул обитает в безлесных, засушливых областях с резко континентальным климатом: в горах, степях и полупустынях. В горы манул поднимается в среднем до 4800 м, максимальная зарегистрированная высота обитания — более 5500 метров на Тибетском нагорье.
+
+![Манул](https://upload.wikimedia.org/wikipedia/commons/9/92/Manul1a.jpg)
